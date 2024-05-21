@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Fernanda Gusmao Amaral
-- 👀 I’m interested in new knowledge about
+- 👀 I’m interested in new knowledge about Chat Gpt 
 - 🌱 I’m currently learning BootCamp Santander
 - 📫 How to reach me spacefernanda@gmail.com
 
